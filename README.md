@@ -1,4 +1,4 @@
-# **Jenni AI Student Discount 2025: Save Up to 40% + Free Access**  
+# **Jenni AI Student Discount 2025: Save Up to 60% + Free Access**  
 For students seeking affordable AI writing assistance, Jenni AI offers tailored discounts and free access to streamline academic work. Here’s a detailed guide to maximizing savings while leveraging its powerful features:
 👉 **[https://jenni.ai/?via=60Discount](https://jenni.ai/?via=upto80off))**  
 ---
