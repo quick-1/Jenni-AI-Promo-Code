@@ -1,15 +1,15 @@
 # **Jenni AI Student Discount 2025: Save Up to 40% + Free Access**  
 For students seeking affordable AI writing assistance, Jenni AI offers tailored discounts and free access to streamline academic work. Here’s a detailed guide to maximizing savings while leveraging its powerful features:
-👉 **[https://jenni.ai/?via=60Discount](https://jenni.ai/?via=60Discount))**  
+👉 **[https://jenni.ai/?via=60Discount](https://jenni.ai/?via=upto80off))**  
 ---
 ## How to Get 60% Off with Jenni AI Promo Code 2025  
 Follow these steps to claim your discount:  
-1. Visit the [Jenni AI website](https://jenni.ai/?via=60Discount).  
+1. Visit the [Jenni AI website](https://jenni.ai/?via=activeoffer).  
 2. Choose a subscription plan (Basic, Unlimited, or Team).  
 3. **Apply the promo code `JENNI60` at checkout**.  
 4. Enjoy **60% off** your subscription!  
 
-👉 **[Click here to activate the 60% discount](https://jenni.ai/?via=60Discount))**  
+👉 **[Click here to activate the 60% discount](https://jenni.ai/?via=activeoffer))**  
 
 👉 **[https://jenni.ai/?via=60Discount](https://jenni.ai/?via=60Discount))**  
 
